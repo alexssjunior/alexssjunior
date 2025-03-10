@@ -1,4 +1,4 @@
-## Oiii eu sou o Alexsandro Silva, Entusiástico por programação e tecnologia!
+## Olá eu sou o Alexsandro Silva, apaixonado por programação é suas tecnologias!
 
 
 
